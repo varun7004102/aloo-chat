@@ -1,0 +1,2 @@
+ chop all the vegetable(onion,tomato,coriander,chilli, potato)take a pan and put 3tps of oil and fry potato for 30s and take them out after choping the vegetable take bowl and put your potato in it and add all your vegetabls into it and mix them well now add all the spices (salt ,red chilli poweder,cumin powder, black salt, chat masala) and mix them now add tamarind chutney,tomato ketchup and mix them all add bhujiya sev 
+ and we are all done to eat
